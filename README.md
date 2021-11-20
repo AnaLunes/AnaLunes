@@ -12,7 +12,7 @@ Sobre mim:
 Fun fact:<br>
 🖌️ Desenhista nos tempos livres<br>
 🐱 Amante de gatos, plantas e mangá<br>
-💬 Contatos: [Linkedin](https://www.linkedin.com/in/ana-claudia-hassuo-padovani-743298181/) | [ana.hassuo.padovani@gmail.com](ana.hassuo.padovani@gmail.com.br)<br>
+💬 Contatos: [Linkedin](https://www.linkedin.com/in/ana-claudia-hassuo-padovani-743298181/) | [ana.hassuo.padovani@gmail.com](ana.hassuo.padovani@gmail.com)<br>
 
 About me:
 * 🌱 Graduated in Agribusiness Technology at [**FATEC-MC**](https://www.fatecmogidascruzes.com.br/) - Faculdade de Tecnologia de Mogi das Cruzes (2017-2020)
@@ -22,4 +22,4 @@ About me:
 Fun fact:<br>
 🖌️ Free time artist<br>
 🐱 Cats, plants and mangá lover<br>
-💬 Contacts: [Linkedin](https://www.linkedin.com/in/ana-claudia-hassuo-padovani-743298181/) | [ana.hassuo.padovani@gmail.com](ana.hassuo.padovani@gmail.com.br)<br>
+💬 Contacts: [Linkedin](https://www.linkedin.com/in/ana-claudia-hassuo-padovani-743298181/) | [ana.hassuo.padovani@gmail.com](ana.hassuo.padovani@gmail.com)<br>
